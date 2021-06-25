@@ -1,0 +1,1 @@
+//todas as infos das bandas
